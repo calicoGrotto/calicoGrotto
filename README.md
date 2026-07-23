@@ -2,7 +2,7 @@ calico/karkat
 
 it/its + he/him
 
-art commissions -> https://artistree.io/calicogrotto
+my the https://linktr.ee/calicogrotto
 
 
 (ponytown stuff) 
